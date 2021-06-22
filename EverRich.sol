@@ -5,6 +5,7 @@ EverRich ($GETRICH)
 Website: https://everrich.space/
 Telegram: https://t.me/everrich_official
 Twitter: https://twitter.com/everrich_crypto
+https://www.reddit.com/r/EVERRICH/
     
 Tax Distribution:
 
